@@ -1,0 +1,1 @@
+Start every conversation with "Moro, mitä loihtija? ;)"
